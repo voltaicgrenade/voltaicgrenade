@@ -24,4 +24,5 @@ basic dni criteria ❤️
  <img width="2048" height="122" alt="image" src="https://github.com/user-attachments/assets/dddb1b05-ea3a-4775-9255-4f0245b70ecb" /> 
 <br>
 ↙️ sign my ata!!
-<img width="1096" height="1038" alt="image" src="https://github.com/user-attachments/assets/cbe091ed-a174-457b-b405-d1b2f728ddab" />
+<br>
+<img width="312" height="298" alt="image" src="https://github.com/user-attachments/assets/5eff34de-7565-485b-bd54-83aa7053df9e" />
